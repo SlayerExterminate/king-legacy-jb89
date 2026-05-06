@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with top king legacy Scripts, the #1 Script. Includes private server access and teleport for unbeatable
 
 
 
